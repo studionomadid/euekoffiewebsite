@@ -1,1 +1,1 @@
-a
+copyright euekoffie2024
